@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cheta777
-- 👀 I’m interested in software development
+- 👀 
 - 🌱 I’m currently pursuing bachelor's degree in Mathematics and computing
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me https://www.linkedin.com/in/chetankumarreddy-nellore-477bab20b/
